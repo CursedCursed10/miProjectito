@@ -1,0 +1,1 @@
+estudiando como buena persona
